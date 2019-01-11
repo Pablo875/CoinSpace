@@ -1,0 +1,2 @@
+ID de transacción: 48dafbc531ef0d09c55b5eeeb71b2c2d547cb066d058a5018d43ec1578b3fc4
+cerrado por manzini08 aproximadamente 1 año Hace
